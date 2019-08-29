@@ -18,6 +18,4 @@ THIS IS THE FUCKING MODIFICATION
 
 ssssssssssss
 
-o[
 
-o[
